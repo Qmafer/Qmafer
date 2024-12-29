@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on IM NOTT
 - 📫 How to reach me USA USA USA USA USA
 - 😄 Pronouns: Maximka
-- ⚡ Fun fact: i chlenosos
+- ⚡ Fun fact: bibibibib
 
 <!---
 Qmafer/Qmafer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
